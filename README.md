@@ -49,3 +49,6 @@ https://freshmagnets.com
 
 ## Topics
 fresh magnets, custom photo magnets, personalized fridge magnets, wedding save the date magnets, photo booth magnets, event favor magnets, family photo magnets, pet photo magnets, baby announcement magnets, personalized gifts, custom picture magnets
+
+## Getting Started
+New customers can access the platform directly at [https://freshmagnets.com](https://freshmagnets.com) to upload photos and order custom magnets.
